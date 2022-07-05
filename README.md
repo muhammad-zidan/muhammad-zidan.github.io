@@ -1,2 +1,0 @@
-# muhammadzidan.github.io
-template
